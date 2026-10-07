@@ -47,7 +47,7 @@
 
  hello! желаешь познакомиться?</summary>
            
-Я не против новых знакомств, главное уважать мой комфорт и личное пространство! Я инициативный, но перестаю быть таким, если вы не проявляете инициативу в ответ, либо ее мало. Я играю в основном в рб, майн, либо афкашу один или с кем то. Я преданный, прямолинейный, честный. Я мнительный и эмпатичен, поэтому тебе следует следить за своими словами чтоб не терять мое доверие. Со мной можно провести уютное время, никуда не спеша, разбирая все по полочкам.
+I'm open to meeting new people—the main thing is respecting my comfort and personal space! I’m proactive, but I stop making an effort if you don’t show initiative in return, or if it's lacking. I mostly play Roblox, Minecraft, or just AFK alone or with someone. I’m loyal, straightforward, and honest. I can be overly sensitive and empathetic, so you should mind your words to avoid losing my trust. With me, you can enjoy a cozy, unhurried time, breaking everything down step by step.
 
 </div>
 
