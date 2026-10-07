@@ -47,7 +47,7 @@
 
  hello! желаешь познакомиться?</summary>
            
-I'm open to meeting new people—the main thing is respecting my comfort and personal space! I’m proactive, but I stop making an effort if you don’t show initiative in return, or if it's lacking. I mostly play Roblox, Minecraft, or just AFK alone or with someone. I’m loyal, straightforward, and honest. I can be overly sensitive and empathetic, so you should mind your words to avoid losing my trust. With me, you can enjoy a cozy, unhurried time, breaking everything down step by step.
+I'm open to meeting new people - the main thing is respecting my comfort and personal space! I’m proactive, but I stop making an effort if you don’t show initiative in return, or if it's lacking. I mostly play Roblox, Minecraft, or just AFK alone or with someone. I’m loyal, straightforward, and honest. I can be overly sensitive and empathetic, so you should mind your words to avoid losing my trust. With me, you can enjoy a cozy, unhurried time, breaking everything down step by step.
 
 </div>
 
